@@ -21,3 +21,6 @@ id1>id2??
 ## 亲友提醒 ##
 生日提醒
 ## 应酬 ##
+# 11/20/2017 10:52:28 AM  #
+Many toys have no attraction beyond their novelty value.<br>
+It was fun for a while, but the novelty wore off(it became boring).
